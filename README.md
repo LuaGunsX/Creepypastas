@@ -15,3 +15,9 @@ These creepypastas tell of people, usually a teenager, becoming a psychopath or 
 These creepypastas involve either supernatural beings or actual legendary, mythical, and folkloristic monsters. One of the famous ones are The Rake.
 ## Rituals
 These creepypastas typically contain instructions on how to perform various entity-summoning rituals, including their do's and don'ts. The main aim of these rituals is to have the ritual doer's wishes realised upon successful completion. Other types of rituals which do not have the effect of granting wishes are often performed for recreation.
+# Sources
+* Wayback Machine
+* Creepypasta Wiki
+* Trollpasta Wiki
+* Lost Episode Creepypasta Wiki
+* archive.ph
