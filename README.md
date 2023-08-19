@@ -21,3 +21,13 @@ These creepypastas typically contain instructions on how to perform various enti
 * Trollpasta Wiki
 * Lost Episode Creepypasta Wiki
 * archive.ph
+* SomeOrdinaryGamers Wiki
+* creepypasta.com
+* creepypasta.org
+* Spinpasta Wiki
+* Minecraft Creepypasta Wiki
+* Roblox Creepypasta Wiki
+* Creepypasta Classics Wiki
+* Creepypasta Land Wiki
+* Gaming Creepypasta Wiki
+* Minecraft Trollpasta Wiki
